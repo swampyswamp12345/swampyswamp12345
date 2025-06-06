@@ -1,7 +1,4 @@
-Hi my name swampy swamp, the saisei admin
-I LOVE to LARP!!!
-
-the bloodnest is my favourite covenant!!! I larp with them all the time
+moron
 
 <!---
 swampyswamp12345/swampyswamp12345 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
